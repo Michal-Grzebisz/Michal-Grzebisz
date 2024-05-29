@@ -1,4 +1,5 @@
-![Profile Picture](Hey_lower.png)
+
+# Hi there! 👋
 
 I'm a programmer working on my own website, [Code and Create](https://www.michalgrzebisz.com/) 🌐. Here are a few things about me:
 
