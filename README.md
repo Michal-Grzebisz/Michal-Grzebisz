@@ -13,4 +13,4 @@ In my free time, I enjoy bouldering. It's the perfect way for me to relax while 
 
 ### Get in Touch 📬
 
-Feel free to reach out to me on [LinkedIn](www.linkedin.com/in/michał-grzebisz-1a20b9214) or contact me through my [website](https://www.michalgrzebisz.com/).
+Feel free to reach out to me on [LinkedIn](www.linkedin.com/in/michał-grzebisz) or contact me through my [website](https://www.michalgrzebisz.com/).
